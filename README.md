@@ -1,4 +1,4 @@
-**## Mude+ Tech: Sua nova descoberta está a um clique!**
+**## Mude+ Tech: Sua nova descoberta está a um clique!** - Imersão dev com Gemini
 
 **O que é isso?**
 
